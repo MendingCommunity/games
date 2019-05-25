@@ -18,8 +18,6 @@
 
 **● Factorio** [[download](https://pirateproxy.lat/torrent/30568796/Factorio_v0.17.8)] [instructions]
 
-**● Garry's Mod** [download] [instructions]
-
 **● Need For Speed: Most Wanted** [[download](https://pirateproxy.lat/torrent/8024950/Need_for_Speed_Most_Wanted_1.3_(Black_Edition)_(2005))] [instructions]
 
 **● Rise of Nations: Extended Edition** [[download](https://pirateproxy.lat/torrent/10346234/Rise_of_Nations_Extended_Edition-FLT)] [instructions]
